@@ -1,1 +1,0 @@
-Projeto do aluno  ERICK MANOEL DE SOUZA RIBEIRO.
